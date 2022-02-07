@@ -1,6 +1,6 @@
 # **Journeo**
 
-## Grow through what you go through!
+## Grow through what you go through :purple_heart:
 
 
 ### What to expect:
